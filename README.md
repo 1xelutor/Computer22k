@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Computer22k
+- 👋 Hi, I’m @1xelutor
 - 👀 I’m interested in  el mundo del software
 - 🌱 I’m currently learning  edicion de video
 - 💞️ I’m looking to collaborate on edicion
